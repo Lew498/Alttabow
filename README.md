@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Alttabow
+- 👀 I’m interested in Fronted Deloveper  (Junior)
+- 🌱 I’m currently learning : Html,css,js
+- 💞️ I’m looking to collaborate on : No 
+- 📫 How to reach me : Telegram 
+- 😄 Pronouns: sigma 
+- ⚡ Fun fact: Pon 
